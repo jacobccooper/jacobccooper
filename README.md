@@ -1,1 +1,1 @@
-I'm an IRACDA Postdoctoral Fellow at the University of Kansas. I work on ecology, evolution, and biogeography, primarily in birds.
+Assistant Professor of Biology at University of Nebraska at Kearney.
